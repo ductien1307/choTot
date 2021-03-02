@@ -1,3 +1,0 @@
-# VNW
-# choTot
-# choTot
